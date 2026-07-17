@@ -1,6 +1,5 @@
-# rttnmlk-dnc
+# In fo info!
 r e a d i ng! r e a d i n g !
-I N T R O
 
 Abt Me ! !
 
